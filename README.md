@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects where I can learn and apply my knowledge
 - 📫 How to reach me: Email- jmcdevitt2003@gmail.com Phone number: (949) 616-0246
 - 😄 Pronouns: He/ Him
-- ⚡ Fun fact: I love to surf
+- ⚡ Fun fact: I love to play pickleball
 
 <!---
 Joshuamcdevitt/Joshuamcdevitt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
